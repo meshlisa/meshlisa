@@ -29,5 +29,5 @@ Check out some of my recent projects:
 solanke-rose](#)
 - **Email**: [osolanke7@gmail.com](#)
 
-Let's collaborate and turn data into meaningful insights! 🚀
+Let's collaborate and turn data into meaningful insights!
 
